@@ -10,4 +10,5 @@ Steve Griffith (Prof3ssorSt3v3)
 
 ### Students
 
+Bethany was here!
 [DAO](https://www.youtube.com/@jq7352)
