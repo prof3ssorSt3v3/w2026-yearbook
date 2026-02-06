@@ -11,3 +11,6 @@ Steve Griffith (Prof3ssorSt3v3)
 ### Students
 
 Jimmy Z. (Ji Zhang) was here
+Rachel was here!
+Bethany was here!
+[DAO](https://www.youtube.com/@jq7352)
