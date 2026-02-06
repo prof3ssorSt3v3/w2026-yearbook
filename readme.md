@@ -14,6 +14,8 @@ Aymen Loudiy : [Personal Github](https://github.com/loudiyaymen)
 
 ### Students
 
+Name: Trang 
+
 Edgard was here!
 
 Jimmy Z. (Ji Zhang) was here
