@@ -9,3 +9,5 @@ Steve Griffith (Prof3ssorSt3v3)
 ### Program Assistants
 
 ### Students
+
+Arturo Gabriel Dacevedo Tello
