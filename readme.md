@@ -8,4 +8,6 @@ Steve Griffith (Prof3ssorSt3v3)
 
 ### Program Assistants
 
+Cheng (Eric) Dong (dong0085)
+
 ### Students
