@@ -11,3 +11,5 @@ Steve Griffith (Prof3ssorSt3v3)
 ### Students
 
 Rachel was here!
+Bethany was here!
+[DAO](https://www.youtube.com/@jq7352)
