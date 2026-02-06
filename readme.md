@@ -11,3 +11,6 @@ Steve Griffith (Prof3ssorSt3v3)
 ### Students
 
 Steve was here!
+Quinton
+Art
+Duncan
