@@ -14,6 +14,14 @@ Aymen Loudiy : [Personal Github](https://github.com/loudiyaymen)
 
 ### Students
 
+Steve was here!
+
+Quinton
+
+Art
+
+Duncan
+
 Name: Trang 
 
 Edgard was here!
